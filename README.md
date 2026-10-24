@@ -27,7 +27,7 @@ We usually don't put SYS or INTRJ in our names because of how weird people on PT
   [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=95465e&bar_color_cover=false)](https://spotify-github-profile.kittinanx.com/api/view?uid=rxjagkmip1jrr6iilfjnj8k22&redirect=true)
 
 
-<p align="Center"> <a href="https://rentry.org/B0vidae">Rentry</a> > <a href="https://bovidae.straw.page">Strawpage</a> > <a href="https://bovidae.atabook.org">AtaBook</a> > <a href="https://rentry.co/VenomFriends">My Friends</a>
+<p align="Center"> <a href="https://rentry.org/B0vidae">Rentry</a> > <a href="https://bovidae.straw.page">Strawpage</a> > <a href="https://bovidae.atabook.org">AtaBook</a> 
 </div>
 
 
