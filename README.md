@@ -4,20 +4,16 @@
 <p align="Center"> Matrix System!
 
 Host: Albert (He/Him) <br/>
-Co-Host/s: Scott (He/Him)  &  12 (Any Pronouns)<br/>
-Freq Fronters:Bucky (He/Him), Quill (He/It), Jill (She/Her), Lorant (He/It) & Zemo (He/Him)<br/>
 
 **If You're unsure who's fronting:**<br/>
 Calling us Wes or Albert is fine. <br/>
 He/Him or They/Them pronouns are fine **unless told differently**.<br/>
 
 **Other Things To Note:** <br/>
-Usually, but not always, we'll have a link that isn't 'B0vidae' if someone else is fronting. If that person doesn't have their own link then this one will be used.
-Usually Scott and Albert front together. <br/>
-We don't want to interact with other people 'just because we're systems' ...We do find it odd.<br/>
+We rarely have this linked or put SYS in our ponytown names due to how strange people on ponytown can be. For that same reason, this github has been scrubbed of a lot of info.
+We don't want to interact with other people 'just because we're systems' ...We find it weird as shit.<br/>
 Depending on who's fronting they may use I/Me or We/Us.<br/>
-Don't try to roleplay with us...It's incredibly weird to try to roleplay with systems.<br/>
-We usually don't put SYS or INTRJ in our names because of how weird people on PT can be. <br/>
+Don't roleplay with us, you'll just get blocked.<br/>
 
 <p align="Center"> <a href="https://pluralkit.xyz/f/gyrxgj">Click Here If You Want To Know Who's Fronting Right Now.</a> <br/>
 <p align="Center">   Disclaimer: THIS MAY NOT ALWAYS BE UPDATED!!<br/>
